@@ -8,7 +8,7 @@
 
 • 🌱 I’m currently learning: **HTML5, CSS3, JavaScript and React**
 
-• 🥅 2021 Goals: **Get a job as a UX/UI designer or a WEB developer**
+• 🥅 2021 Goals: **Get a job 💲 as a UX/UI designer or a WEB developer**
 
 • 📫 How to reach me: **hannah.m.neves@gmail.com**
 
