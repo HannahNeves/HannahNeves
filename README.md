@@ -12,7 +12,7 @@
 
 • 📫 How to reach me: **hannah.m.neves@gmail.com**
 
-• ⚡ Fun fact: **I only drink water** 🥤💧
+• ⚡ Fun fact: **I looove Ghibli's movies!** 😍🎬
 
 ---
 
