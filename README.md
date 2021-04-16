@@ -4,7 +4,7 @@
 
 ## A lively girl who wants reach your new goals! 😄💚
 
-• 🔭 I’m currently working on [**My site**](https://github.com/HannahNeves/Meu-site-v2.0)
+• 🔭 I’m currently working on [**My site**](https://hannahneves.github.io)
 
 • 🌱 I’m currently learning: **Design things 🤭**
 
