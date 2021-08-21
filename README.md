@@ -8,8 +8,6 @@
 
 • 🌱 I’m currently learning: **Design things 🤭**
 
-• 🥅 2021 Goals: **Get a job 💲 as a UX/UI designer**
-
 • 📫 How to reach me: **hannah.m.neves@gmail.com**
 
 • ⚡ Fun fact: **I looove Ghibli's movies!** 😍🎬
